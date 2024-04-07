@@ -90,7 +90,8 @@ Here are some ideas to get you started:
 ## Valorant Internal
 
 🎁 • Aimbot + Esp Player + Gadgets
-<!-- ![image](https://github.com/Vendicated/Vencord/assets/45497981/706722b1-32de-4d99-bee9-93993b504334) -->
+
+![image](https://raw.githubusercontent.com/YCheats/Valorant-Cheat/main/500x250%20(Jett).gif) 
 
 🎁 • [YouTube Shorts Valorant Cheat](https://www.youtube.com/shorts/S8UK3HDXf3s?feature=share)<br/>
 
