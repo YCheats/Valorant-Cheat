@@ -2,7 +2,7 @@
 
 🎁 • Hello! 
 
-🎁 • I sell cheats for Pubg & Valorant + spoofer｜tpm-bypass.
+🎁 • I sell cheats for Pubg & Valorant + spoofer｜tpm-bypass
 
 🎁 • DiscordID: yarvx
 
