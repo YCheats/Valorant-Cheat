@@ -4,7 +4,7 @@
 
 🎁 • I sell cheats for Pubg & Valorant + SPOOFER｜TPM-BYPASS
 
-🎁 • DiscordID: yarvx
+🎁 • Discord ID: yarvx
 
 
 ## Media
