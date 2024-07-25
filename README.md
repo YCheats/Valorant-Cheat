@@ -97,4 +97,4 @@ Here are some ideas to get you started:
 ✅ • Undetected
 
 ## More details
-[![Discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/invite/7SheNAt2H6)
+[![Discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/s2b4rKayca)
