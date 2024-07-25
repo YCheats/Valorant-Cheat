@@ -92,8 +92,6 @@ Here are some ideas to get you started:
 
 ![image](https://raw.githubusercontent.com/YCheats/Valorant-Cheat/main/500x250%20(Jett).gif) 
 
-🎁 • [YouTube Shorts Valorant Cheat](https://www.youtube.com/shorts/S8UK3HDXf3s?feature=share)<br/>
-
 
 ## Safe
 ✅ • Undetected
